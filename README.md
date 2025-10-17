@@ -1,1 +1,1 @@
-## Frontend / Backend entry level developer from Greece
+## Junior full stack developer from Greece
